@@ -1,6 +1,10 @@
 En los últimos días, las redes sociales han sido el escenario de una polémica que ha generado indignación y asombro en la opinión pública. Un video, grabado presuntamente dentro de las instalaciones de la Universidad Autónoma de Santo Domingo (UASD), muestra a cuatro estudiantes involucrados en actos sexuales explícitos.
 
-Este contenido, que se ha viralizado rápidamente, ha puesto a la institución educativa en el centro de un debate sobre los límites del comportamiento ético y el respeto a los espacios académicos.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 El impacto del material audiovisual no solo ha sacudido la reputación de la universidad, sino que también ha reabierto el diálogo sobre el uso responsable de las redes sociales y la privacidad en la era digital.
 
