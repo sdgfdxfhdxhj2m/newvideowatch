@@ -1,6 +1,10 @@
 En las últimas horas, la búsqueda del video viral de Katrin Carvajal con un repartidor de pizza o pizzero ha ganado gran popularidad en redes sociales como Twitter (ahora X). Este video, de carácter íntimo, fue grabado para la cuenta de Onlyfans de Katrin Carvajal, también conocida como Katherine o Kathrin Carvajal.
 
-Según diversas páginas de internet, el video muestra a la colombiana en una situación privada con un repartidor de pizza.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 ¿Qué es el video de Katrin Carvajal y el pizzero?
 La creadora de contenido colombiana Katrine Carvajal se volvió tendencia tras su participación en el podcast Dreams de Beto Castañeda, donde habló sobre su vida privada, fantasías sexuales y su trabajo en Onlyfans. La polémica creció con la publicación de un video íntimo entre Katrine y un repartidor de pizzas, grabado en su casa y supuestamente registrado por sus cámaras de seguridad.
