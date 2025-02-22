@@ -1,7 +1,11 @@
 Tal parece que Mariana Seoane no la está pasando nada bien, ya que ahora se filtró un video de la cantante, quien aseguró que “no se vale”. ¿De qué se trata? En Unotv.com te compartimos los detalles.
 
-Mariana Seoane alza la voz tras la filtración de video
-En una historia en Instagram, que retomó la revista TV Notas, la intérprete de “Mermelada” aseguró que se difundió un video de ella, por lo cual se mostró molesta.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Mariana Seoane denuncia filtración de un video personal en medio del duelo por la MU3RTE de su madre.
  pic.twitter.com/B701UCvaOe
